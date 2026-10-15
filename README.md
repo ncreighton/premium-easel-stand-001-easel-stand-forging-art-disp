@@ -1,0 +1,2 @@
+# premium-easel-stand-001-easel-stand-forging-art-disp
+Stop juggling messy spreadsheets, scattered notes, and forgotten client specs. The Easel Stand Forging &amp; Art Display Craft Hub is the only Notion template designed to unify your forge workflow with your art display business—so you can spend less time organizing and more time creating.  This template solves the chaos of managing dual craft streams:
